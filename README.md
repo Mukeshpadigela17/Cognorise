@@ -1,1 +1,1 @@
-# Cognorise
+# Cognorise Technologies
